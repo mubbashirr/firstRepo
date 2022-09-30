@@ -1,3 +1,3 @@
 My name is khan.
 And,
-I am not a dushman.
+I am a dushman.
